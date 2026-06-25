@@ -77,8 +77,8 @@ Currently focusing on:
 ## 🤝 Connect With Me
 
 * GitHub: https://github.com/Kousar-Tehaseen
-* LinkedIn: Add Your LinkedIn Profile
-* Email: Add Your Email Address
+* LinkedIn:https://www.linkedin.com/in/attar-kousar-tehaseen-b83a84280/
+* Email: kousartehaseen@gmail.com
 
 ---
 
